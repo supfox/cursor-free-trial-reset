@@ -1,3 +1,5 @@
+# Cursor Free Trial Reset — Bypass Request Limits & Restore Unlimited Pro Access
+
 <div align="center">
 
 <img src="https://capsule-render.vercel.app/api?type=waving&color=gradient&customColorList=6,12,20&height=220&section=header&text=Cursor%20Unlocker&fontSize=62&fontColor=ffffff&fontAlignY=40&desc=🔥%20Remove%20Trial%20Limits%20·%20Reset%20Session%20·%20Just%20Run%20the%20.exe&descAlignY=60&descSize=16&animation=fadeIn" />
